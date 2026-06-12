@@ -1,5 +1,7 @@
 # Elaine da Silva Santos
-
+(11) 98675-7408
+📧 elaine.dev-@gmail.com
+📍 São Paulo - SP
 ## Sobre Mim
 
 Estudante de Gestão da Tecnologia da Informação pela UNINOVE, atualmente no 3º semestre, em transição de carreira para a área de Tecnologia da Informação.
